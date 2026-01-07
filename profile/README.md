@@ -8,17 +8,17 @@ Here's the big one: **November 19, 2026**. That's your date. Mark it on your cal
 
 <a href="https://www.skytup.com/blog/gta-6-release-date-everything-you-need-to-know" 
    style="text-decoration: none; background-color: #ff4757; color: #fff; padding: 15px 30px; border-radius: 10px; font-size: 18px; font-weight: bolder; box-shadow: 0px 5px 10px rgba(0,0,0,0.2); transition: 0.3s; display: block; margin-bottom: 10px;">
-   🔥 YOU WON'T BELIEVE WHEN GTA 6 DROPS! 🔥 Get the Release Date & More!
+  # 🔥 YOU WON'T BELIEVE WHEN GTA 6 DROPS! 🔥 Get the Release Date & More!
 </a>
 
 <a href="https://www.skytup.com/blog/gta-6-release-date-when-is-rockstar-games-gta-6-coming-out-everything-we-know-so-far" 
    style="text-decoration: none; background-color: #2ed573; color: #fff; padding: 15px 30px; border-radius: 10px; font-size: 18px; font-weight: bolder; box-shadow: 0px 5px 10px rgba(0,0,0,0.2); transition: 0.3s; display: block; margin-bottom: 10px;">
-   🚀 GTA 6 IS COMING & THE WAIT IS KILLING US! 🚀 Click to Uncover the Truth!
+#   🚀 GTA 6 IS COMING & THE WAIT IS KILLING US! 🚀 Click to Uncover the Truth!
 </a>
 
 <a href="https://www.skytup.com/blog/gta-6-technology-characters-and-the-weight-of-expectations" 
    style="text-decoration: none; background-color: #1e90ff; color: #fff; padding: 15px 30px; border-radius: 10px; font-size: 18px; font-weight: bolder; box-shadow: 0px 5px 10px rgba(0,0,0,0.2); transition: 0.3s; display: block;">
-   🤯 THESE GTA 6 FEATURES WILL LEAVE YOU SPEECHLESS! Click to See What We Know!
+#   🤯 THESE GTA 6 FEATURES WILL LEAVE YOU SPEECHLESS! Click to See What We Know!
 </a>
 
 <a target="_blank" href="https://www.google.com/search?q=gta+skytup&oq=gta+skytup&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIJCAEQABgNGIAEMgkIAhAAGA0YgAQyCQgDEAAYDRiABDIJCAQQABgNGIAEMgkIBRAAGA0YgAQyCQgGEAAYDRiABDIGCAcQRRg80gEIMjI2N2owajeoAgCwAgA&sourceid=chrome&ie=UTF-8">
